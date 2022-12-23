@@ -2,7 +2,7 @@
 - 💹 I’m interested in Trading/Investing
 - ⚖️ I’m currently a Law Student
 - 🤔 I’m looking for Legal/Stock market related jobs
-- 📫 How to reach me Instagram @absxcnt
+- 📫 Instagram @absxcnt
 
 <!---
 abxcent/abxcent is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
